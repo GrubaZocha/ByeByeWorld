@@ -1,2 +1,4 @@
 # ByeByeWorld
-Żegnaj Świeciu
+Żegnaj Świeciu.  
+Czas do domu iść.  
+## Nie wiem co to jest......  
