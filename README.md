@@ -1,0 +1,2 @@
+# ByeByeWorld
+Żegnaj Świeciu
